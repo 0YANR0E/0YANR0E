@@ -13,6 +13,7 @@
 
 <p align="center"><img src="https://file.garden/aA1qN-TwXWPVZ6HZ/TFstamp.gif" alt="blinkie">
 
+ <p align="center"><img src="https://file.garden/aXu9FpkcPAJchg9c/Pixels/Red/IMG_4430.gif" width="90" alt="Animated Pixels" />
  
   
          
