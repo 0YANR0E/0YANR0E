@@ -6,7 +6,7 @@
  <p align="center"> <img src="https://y2k.neocities.org/blinkiez/595788uvzpdvi4vj.gif" width="300" alt="Animated Pixels" />
 
 <p align="center">$\color{red}{\text{call me xer/red/reed}}$
-<p align="center">$\color{#CC5500}{\anyprns is okay{!}}$
+<p align="center">$\color{#CC5500}{anyprns is okay{!}}$
 
 <p align="center"<img src="https://y2k.neocities.org/blinkiez/37415evfhgpai7u.gif" alt="blinkie">
 
