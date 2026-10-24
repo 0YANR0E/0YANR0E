@@ -5,7 +5,8 @@
 
  <p align="center"> <img src="https://y2k.neocities.org/blinkiez/595788uvzpdvi4vj.gif" width="300" alt="Animated Pixels" />
 
-<p align="center">$\color{red}{\text{hi}}$
-  
+<p align="center">$\color{red}{\text{call me xer/red/reed}}$
+<p align="center"><img src="https://pin.it/2ljhrQsvW" alt="Alt Text" width="100">
+ 
   
          
